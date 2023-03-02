@@ -1,1 +1,2 @@
 
+Hi there, My name is Imdadul Haque. I am a Front-end & WordPress developer with an experience duration of about 4 years. I am an expert in WordPress theme and plugins development. I have developed many sites, and more than 95% of my clients were satisfied. At work, I use the best ways in web development. I try to keep up to date with all web industry alternatives. My main goal is to fully satisfied clients. Therefore, I am confident enough to get your job done perfectly and absolutely. It will be a great pleasure to work on your project. Thank you.
